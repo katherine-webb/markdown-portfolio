@@ -1,1 +1,4 @@
-Replace this with a list of your favorite things.
+Places to eat on Thayer!
+- Ganko Ittetsu Ramen :ramen:
+- Eastside Pockets
+- Bagel Gourmet
